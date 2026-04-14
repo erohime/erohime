@@ -9,7 +9,7 @@ i try to be kind to everyone but i'm kinda annoying when people bother me
 removed the line about not intentionally causing drama bc u guys are  
 constantly talking about shit u dont like for no reason. i'm gonna talk to u  
 if ur shit talking anything i like especially if you're the kind to accuse  
-people of being terrible over the kind of fiction they like. don't like don't read 🖕
+people of being terrible over the kind of fiction they like. don't like don't read 🖕  
 also if u indirectly mention me yes i'm gonna say something to you. don't act  
 like a victim if you're the one being shady for no reason.  
 i'm only into weird stuff in fiction ok don't accuse me of things  
