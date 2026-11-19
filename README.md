@@ -9,6 +9,10 @@ i try to be kind to everyone but i'm kinda annoying when people bother me
 if you're the kind to accuse people of being terrible over the kind of  
 fiction they like, we can't be friends! don't like don't read  
 i'm only into weird stuff in fiction ok don't accuse me of things  
+if u are here because of some accusations you heard, please read this !  
+anyone accusing me of being a pred is talking about FICTION !  
+if you believe these rumors you can speak to me and i can describe  
+the situation to you. do not believe these people !  
 i love him ↓
 ![til](https://github.com/user-attachments/assets/862921ca-8ff5-4a26-972c-bcdc6eb20e38)
 ###### i can't be bothered to make this any smaller
